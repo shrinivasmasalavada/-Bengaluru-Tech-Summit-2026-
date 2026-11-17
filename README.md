@@ -1,6 +1,7 @@
 # -Bengaluru-Tech-Summit-2026-
 Explore Bengaluru Tech Summit 2026, showcasing innovations in AI, Robotics, Embedded Systems, Semiconductors, Drones, EVs, and emerging technologies.\ A platform to connect with industry experts, startups, researchers, and explore hands-on learning, collaboration, and career opportunities.
 
+https://bengalurutechsummit.com/conference.php#delegate-tariff
 # **Bengaluru Tech Summit 2026 (BTS 2026)**
 
 [Bengaluru Tech Summit | 17-19 November 2026 | Startup Events](https://images.openai.com/static-rsc-4/DhvoOtpaDNZafj6F3q61UlU_nK3F7G_6e_LwKsdtKsbrStNi_9eMBskSCrNwu5QgZYdvHXFZPxjt9ieyCDRHLP9YwgJB5f00Tc0DV3xNvrYCp_bZMiahIgB3kvoFjGn7ukyjlsjIJ3jJhKZ_6j_7-9nueAQ-QlOIrkRH7eFtnE4?purpose=inline)
