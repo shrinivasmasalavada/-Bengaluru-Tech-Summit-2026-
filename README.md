@@ -118,3 +118,229 @@ Bengaluru Tech Summit 2026+1
 Are you planning to attend Bengaluru Tech Summit 2026?
 
 I can prepare a targeted list of **companies, startup stalls, robotics/drone exhibitors, embedded hardware companies and internship opportunities to approach at the summit**, so you can make the most of your visit.
+
+
+  # **Bengaluru Tech Summit 2026 – Complete Guide**
+
+[Startup Opportunities at BTS 2026 | Pavilion, Pitching & Mentoring](https://images.openai.com/static-rsc-4/rXd-xSHZDI_Il5tnaC3qr-YMUUfEVA9pXx9MQb8O28kxflyTYHNLNFqC5ZHS0Txo9ICnNoSefiTxRfULemN1GvLYEu5DKVAoEB7WbsBJ41n4A_Kc0k7UDZbShzJL6BoN0h0VP6oMAMXiaR5vZEPyy5fuQZhuMO1hXh0FPiajT5Q?purpose=inline)
+
+[Bengaluru Tech Summit 2026 | Asia’s Premier Technology & Innovation Event](https://images.openai.com/static-rsc-4/5yGNvZ9onZqwvQb01AZWddik4ksfY2Jbf8ttE4imSVhm7XQEsR-A3sdrSURpifjtMBu_69j0BSJXwSxFGOyY8oiF6201uov-gGfT0VimZlofZrD_Jit_dPn7yZ4bHDAKaNQql7sedEc6zrhA8IsI-MMmfGIWe7NzW6q4fK0c2RU?purpose=inline)
+
+[Bengaluru Tech Summit 2025: Innovation Showcase | Swadesi News | Swadesi](https://images.openai.com/static-rsc-4/xrVPwXeuSzLkw5FSu-w71IbS_3R0cFBCe5U_oU3M5iwp48fjmo6s2jcORal4EDQyxp5XzwQ1VL8oMZ6z24jhkK4GZ_0d2_m_eP_4xU1Sw6Pd3vALfOwp1HOnJvVvh1mE1smzF-4-Xo6-phHTvrCcH_YDsg7bF32Wik5jpXYotkA?purpose=inline)
+
+11
+
+
+
+17–19 November 2026
+
+29th Edition
+
+
+
+The **Bengaluru Tech Summit (BTS) 2026** is one of India's major technology, innovation and startup events. It brings together technology companies, research institutions, startups, investors, government organisations, engineers and international delegates.
+
+The 2026 theme is **AI & Beyond**.
+
+The event is organised by the Department of Electronics, IT, Biotechnology and Science & Technology, Government of Karnataka, with STPI as a co-host.&#x20;
+
+[image](https://www.google.com/s2/favicons?domain=https://bengaluru.stpi.in\&sz=32)
+
+bengaluru.stpi.in
+
+
+
+## **1. Event overview**
+
+| Particular           | Details                                   |
+| -------------------- | ----------------------------------------- |
+| Event                | Bengaluru Tech Summit 2026                |
+| Edition              | 29th                                      |
+| Dates                | 17–19 November 2026                       |
+| Venue                | Bangalore International Exhibition Centre |
+| City                 | Bengaluru                                 |
+| Theme                | AI & Beyond                               |
+| Organiser            | Government of Karnataka                   |
+| Exhibition           | 3 days                                    |
+| Visitor registration | Free business exhibition access           |
+
+**Exhibition timings:**
+
+- 17 November: 11 AM–6 PM
+- 18 November: 10 AM–6 PM
+- 19 November: 10 AM–5 PM (entry closes at 4 PM).&#x20;
+
+  [image](https://www.google.com/s2/favicons?domain=https://bengalurutechsummit.in\&sz=32)
+
+  Bengaluru Tech Summit 2026+1
+
+
+
+Since today is 17 November, you can plan for the remaining two days.
+
+## **2. Technology sectors and exhibition areas**
+
+[国产先进封装：从“配角”到“主角”的技术突围战_半导体头条-半导体增值服务网](https://images.openai.com/static-rsc-4/U_c7fdWKgWMxDYwPhcOimzLIHDk9423Xvnmpw_CfQnqx642EgQptoD_T0z3CT7kYKDhR8ZXb84MN68kmdf69nrJiaULf-MVssU21o9JZPg95161UyqLV_hGlejyCKt6nin-pWjjUWgfeVWqD8Qn-hWPyjDwOsFJpR9a59478xag?purpose=inline)
+
+**1. Electro-Semicon**
+
+Semiconductor technology, chip design, PCB, electronics manufacturing, embedded hardware, electronic components and testing.
+
+[2026全球人工智能终端展在深开幕 数千款前沿终端亮相 AI“新物种”重构产业生态新图景_深圳新闻网](https://images.openai.com/static-rsc-4/2hM9ZexnUGRuZEDjJzOhRQ5R7kT21GmKPrL3-vF7JiudGTYVOAM7yFpsHdOrbg0fLGNhYm-rFqWDbNYXpC2jCKKNtE2m3UAdLCuTO-8KsFo5Ush777J__tmdWPqHUMKi2nVgDl2Av_6EMAEhdN5QTFRP0V5qRuLspIlLRSegT3A?purpose=inline)
+
+**2. Robotics and Industrial Automation**
+
+Robotics, smart manufacturing, sensors, industrial controllers, automation and mechatronics.
+
+[Advantech Europe B.V. - Advantech releases all-in-one AI camera for industrial AI vision applications](https://images.openai.com/static-rsc-4/KCYMfh5yMRy-pFJXgHQ0iuayLY8AmbT8t-_zGSCo0XExWCLGQepsZ7TaGAcEXGks5EdsjHC9kDMXAazVf1gmYtUM7zyKFaHF1gbzbrFpx1HpJVJP6Wuhfgr1jxlqzC7K2W3IOd14lIzh1yVZncOgVlfnuAiwrUykKTyxv-7Zc9A?purpose=inline)
+
+**3. Artificial Intelligence and DeepTech**
+
+Machine learning, computer vision, Edge AI, AI hardware, intelligent surveillance and autonomous systems.
+
+[Agriculture  – Plynt Tech](https://images.openai.com/static-rsc-4/Ph3cCYjNJadS77BI4B_H0cU_YwZwOJf-Hop3N2p85bv2BLUN_FjM_7v_JZL6kwwlhCiVym_S-M--OtAOZKmrSCDB9wCmti-hor4IjsQl2kRsvec2HL_sUGgRy4ZKG6gjXYcLBPgAuBxLxUrwfkVwS50nsTOViRf37yfclGPKVYU?purpose=inline)
+
+**4. Agriculture and Drone Technology**
+
+Agricultural automation, precision farming, drones, smart sensors and AI-based crop monitoring.
+
+[Advanced Semiconductor Techs at SEMICON Taiwan - ITRI TODAY 119](https://images.openai.com/static-rsc-4/tKB0klBG-oBT-SSluyW8uNvtkd-uFy-jnzEude-3ZTBG35N7NhD-MEXpyLopRqU8685oeas2VqqpFpfuCqhJA3njxRVM0nfn-mmFcm1HHRHoUFz9pq7Brrd7FumZt9IT3wpyAwCTmMgo-_HQ1EyBxMrqbzWAa5Bq7dv5KsAWK7Q?purpose=inline)
+
+**5. EV and Mobility**
+
+Battery management systems, EV chargers, power electronics, vehicle communication and electric mobility.
+
+[「新創大南方」今開展   王美花：新創到高雄最好時機 - 自由財經](https://images.openai.com/static-rsc-4/dch4alRKGvuw4E6q_HhyLDTrkBph4TVpIBT-qFemZcdunAL-nCElvTVjeP6QzIBzmrVayHPjVeXP1TNCSlovsxbV1z_B3_q2YQMaPHQUs_oQ9rrtf-iCPcROiWs89HZjJVKH-3kKE3_p55sOOemCFEITtnLTWGo1i7rQtPiBzkE?purpose=inline)
+
+**6. Startup and Innovation Pavilion**
+
+Early-stage companies, new products, prototypes, business ideas and startup networking.
+
+The summit's official programme includes dedicated Electro-Semicon, DeepTech, startup, healthcare and sustainability tracks.&#x20;
+
+[image](https://www.google.com/s2/favicons?domain=https://bengaluru.stpi.in\&sz=32)
+
+bengaluru.stpi.in+1
+
+
+
+## **3. Most important sessions: 18 November**
+
+My recommended day to attend
+
+The second day has several sessions directly relevant to your technical interests.
+
+| Time  | Session                                                                            | Stage   |
+| ----- | ---------------------------------------------------------------------------------- | ------- |
+| 10 AM | AI First Transformation                                                            | Trends  |
+| 11 AM | Making India ESDM to Product Nation                                                | Circuit |
+| 11 AM | Enterprise AI: From Pilots to Payoff                                               | Trends  |
+| 12 PM | **The Silicon Evolution: Hardware Sovereignty, Edge AI and the New Era of Drones** | Circuit |
+| 2 PM  | AI-Powered Aerospace & Defence                                                     | Trends  |
+| 2 PM  | India's Opportunity in Components Supply Chain                                     | Circuit |
+| 3 PM  | India's Growing Impact Across AI Layers                                            | Circuit |
+| 4 PM  | Future of EMS Industry in India                                                    | Circuit |
+
+These are listed in the official programme.&#x20;
+
+[image](https://www.google.com/s2/favicons?domain=https://www.bengalurutechsummit.com\&sz=32)
+
+Bengaluru Tech Summit
+
+
+
+**My top three recommendations:**
+
+1. **Silicon Evolution – 12 PM:** Edge AI, hardware and drones.
+2. **AI-Powered Aerospace & Defence – 2 PM:** UAVs, defence technology and intelligent systems.
+3. **Future of EMS Industry – 4 PM:** Electronics manufacturing, hardware assembly and production.
+
+## **4. Important sessions: 19 November**
+
+| Time  | Session                                               | Why it matters           |
+| ----- | ----------------------------------------------------- | ------------------------ |
+| 10 AM | Next-Generation Mobility                              | Automotive technology    |
+| 11 AM | Design-Led Growth: Karnataka's Chip IP                | Semiconductor design     |
+| 11 AM | The Silicon Harvest: Transforming Agriculture with AI | Agricultural AI          |
+| 11 AM | Battery & Energy Systems                              | EV and power electronics |
+| 12 PM | Electric Mobility                                     | EV technology            |
+| 12 PM | AI Talent & Workforce                                 | Career opportunities     |
+
+The agriculture session runs from 11 AM to 12:30 PM.&#x20;
+
+[image](https://www.google.com/s2/favicons?domain=https://www.bengalurutechsummit.com\&sz=32)
+
+Bengaluru Tech Summit
+
+
+
+## **5. Startup opportunities**
+
+[Edgehax (formerly Bharat Pi) | LinkedIn](https://images.openai.com/static-rsc-4/poYCmOxh2tm7L8eOmUHbIANikCrFyP7H-OjFxziNTJt7eGyV_GIoJuOYdGsZkt-pZJC2yfW3tUQxghU9w6okU_MR5lu9VPFmVyX_JYC-534JQe3Gnk9AQXdEw_Wr-Y-OlnHjEBCzxMw6Ru0ajKXYWM8p0FVx3C9Cv2J8zmjUZO4?purpose=inline)
+
+[Talent, innovation, ambition: Meet the startups exhibiting at Bengaluru Tech Summit 2025 | YourStory](https://images.openai.com/static-rsc-4/4XhiLudY6frrShtNemTgKjDkcuSJJuKuTaPk50oO75QBWutkbMExTPIETHEktbFBlDeconu5aKq7r0yrJ61TxWi1u-xGNhELNtzfN3_9ovL_bI9UuGo9ZqIkotaPVwGv3WXBcv1vwbH6KoHHrM_uemG3CYGPClmsETX6fCH1Uoo?purpose=inline)
+
+[Future Makers @ BTS 2026 | Bengaluru Tech Summit](https://images.openai.com/static-rsc-4/wFP9e6Mbli_0IsOiQU5_EXWrYGvtvJnr6Eket0xTTAVxmbewWfq2Pq1t8EYvDkS6WiTxWmXF_JBZAB-c0w5U2HJx1VYPfykcR8UEKmZe5waSjelE2TZARuxHx1qMBxerdOWAu070N4fGsDxx_m9T8otbPx7eKKxnbJFho8_USdc?purpose=inline)
+
+11
+
+One particularly interesting initiative is the **STPI Sayuj Startup Pavilion**.
+
+STPI is supporting exhibition spaces for approximately 100 IT, ITES and ESDM startups.
+
+This means you can meet startup founders, explore prototypes and ask about opportunities to contribute to real projects.&#x20;
+
+[image](https://www.google.com/s2/favicons?domain=https://bengaluru.stpi.in\&sz=32)
+
+bengaluru.stpi.in
+
+
+
+Other programmes listed on the summit website include:
+
+- Startup Expo
+- Investor Connect Programme
+- Mentor–Mentee Connect
+- Product Launch 5.0
+- Global Invention & Innovation Connect
+- Startup conference and masterclasses.&#x20;
+
+  [image](https://www.google.com/s2/favicons?domain=https://www.bengalurutechsummit.com\&sz=32)
+
+  Bengaluru Tech Summit
+
+
+
+## **6. Companies and people you should approach**
+
+Instead of visiting every stall randomly, prioritise these categories.
+
+| Company type              | What to ask about                               |
+| ------------------------- | ----------------------------------------------- |
+| Semiconductor companies   | PCB testing, validation and hardware roles      |
+| Embedded companies        | Firmware, Raspberry Pi, ESP32 and STM32         |
+| Robotics companies        | ROS 2, sensors and automation                   |
+| Drone companies           | UAV electronics, communication and control      |
+| EV companies              | BMS, charging controllers and power electronics |
+| AI startups               | Computer vision and Edge AI projects            |
+| Electronics manufacturers | Quality control, testing and production         |
+
+Useful questions to ask:
+
+1. Are you currently accepting embedded systems interns or trainees?
+2. Do you have opportunities in PCB testing and hardware validation?
+3. Do you work with Raspberry Pi, STM32, ESP32 or Jetson platforms?
+4. Are there opportunities to contribute to ongoing R&D projects?
+5. Can I connect with your technical lead or engineering manager?
+
+## **7. How to prepare before visiting**
+
+Carry:
+
+- Your updated one-page ATS resume.
+- Your GitHub portfolio QR code.
+- LinkedIn profile QR code.
+- A notebook and pen.
+- Phone with sufficient battery and internet.
+- Business cards, if available.
+
