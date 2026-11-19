@@ -3,6 +3,7 @@ Explore Bengaluru Tech Summit 2026, showcasing innovations in AI, Robotics, Embe
 
 https://bengalurutechsummit.com/conference.php#delegate-tariff
 # **Bengaluru Tech Summit 2026 (BTS 2026)**
+![Uploading WhatsApp Image 2026-11-16 at 9.16.21 PM.jpeg…]()
 
 [Bengaluru Tech Summit | 17-19 November 2026 | Startup Events](https://images.openai.com/static-rsc-4/DhvoOtpaDNZafj6F3q61UlU_nK3F7G_6e_LwKsdtKsbrStNi_9eMBskSCrNwu5QgZYdvHXFZPxjt9ieyCDRHLP9YwgJB5f00Tc0DV3xNvrYCp_bZMiahIgB3kvoFjGn7ukyjlsjIJ3jJhKZ_6j_7-9nueAQ-QlOIrkRH7eFtnE4?purpose=inline)
 
