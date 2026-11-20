@@ -9,7 +9,7 @@ https://bengalurutechsummit.com/conference.php#delegate-tariff
 
 [ARTPARK - AI & Robotics Technology Park (@artparkindia) on X](https://images.openai.com/static-rsc-4/bXFEnEif6anS74j2FYHuWY2kY7vaNNKEtMZRQjfu9LvxFCpCbuR4dcPPNQRMaHtHkNtLwpx6ppv_60rRPZKxhC8YIGgKYp6w65r8QLQfCRFZ2JvbInI-YQWxaGIyA-YR8Y56LU3PI2XVMTSvIOJ7lJ4iiZGv2GGXs4_yBxr0k2Q?purpose=inline)
 
-[Bengaluru Tech Summit 2026 | Asia’s Premier Technology & Innovation Event](https://images.openai.com/static-rsc-4/po_669skpYY1UVlxo4Hp7xEhEB0cITSrcbPDjnZUuVPSbckCqoE7N6ukhvpv6wgdQlAwV_ImGAk2ZED_58w5KLx6WoN01CDvuxcumUgB3DP04G0fGrL18kyCFxjm1NmZHFvAZvIo79Hq-_mRaIuBMaMFwt4nqT2a7HKM7dNrSbM?purpose=inline)
+[Bengaluru Tech Summit 2026 | Asia’s Premier Technology & Innovation Event](https://images.openai.com/static-rsc-4/po_669skpYY1UVlxo4Hp7xEhEB0cITSrcbPDjnZUuVPSbckCqoE7N6ukhvpv6wgdQlAwV_ImGAk2ZED_58w5KLx6WoN01CDvuxcumUgB3DP04G0fGrL18kyCFxjm1NmZHFvAZvIo79Hq-_mRaIuBMaMFwt4nqT2a7HKM7dNrSbM?purpose=inline) 
 
 10
 
